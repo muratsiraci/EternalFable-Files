@@ -1,0 +1,2 @@
+# EternalFable-Files
+Copyright © 2022 Artix Entertainment, LLC. All Rights Reserved. "DragonFable" and all game character names are either trademarks or registered trademarks of Artix Entertainment, LLC. All rights are reserved. Warning this site made for just only fun not for money making ChrisRe. Special thanks for mentalblank  you still name fixed databases please contact with me if you want to build your own server. check game in here ; http://game.soulfable.tk you need to use Centbrowser or browser who support Flash player in 2022
